@@ -1,1 +1,0 @@
-# sopar1iqtnmyc
